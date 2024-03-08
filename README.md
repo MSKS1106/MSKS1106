@@ -1,16 +1,15 @@
 # Hi there, this is Srikrishna Santhosh 👋 #
 
-<!--
-**MSKS1106/MSKS1106** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+👨‍🎓🙋‍♂️ About Me 💼🎒:
+I hold a Masters's Degree in Industrial Engineering (Concentrating in Data Analytics) at Northeastern University.
+Currently looking for full-time opportunities.
 
-Here are some ideas to get you started:
+Connect with me on:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+[Linkedin](https://www.linkedin.com/in/msk-santhosh/)
+
+Please feel free to reach out at - [msksanthosh98@gmail.com](mailto:msksanthosh98@gmail.com) , [malisetti.s@northeastern.edu](mailto:malisetti.s@northeastern.edu)
+
+
+
+
