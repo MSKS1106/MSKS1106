@@ -8,7 +8,7 @@ Connect with me on:
 
 [Linkedin](https://www.linkedin.com/in/msk-santhosh/)
 
-Please feel free to reach out at - [msksanthosh98@gmail.com](mailto:msksanthosh98@gmail.com) , [malisetti.s@northeastern.edu](mailto:malisetti.s@northeastern.edu)
+Please feel free to reach out at - [srikrishna.malisetti@gmail.com](mailto:srikrishna.malisetti@gmail.com) , [malisetti.s@northeastern.edu](mailto:malisetti.s@northeastern.edu)
 
 
 
